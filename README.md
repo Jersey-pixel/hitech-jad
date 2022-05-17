@@ -48,7 +48,7 @@ Designed by [Blaz Robar](http://www.blazrobar.com/)
 
 ## Misc
 
-Follow Pete: [Twitter](https://twitter.com/peterfinlan), [Dribbble](http://www.dribbble.com/peterfinlan), [GitHub](https://github.com/peterfinlan)
+Follow Pete: [Twitter](https://t ROBLOXwitter.com/peterfinlan), [Dribbble](http://www.dribbble.com/peterfinlan), [GitHub](https://github.com/peterfinlan)
 
 
 
